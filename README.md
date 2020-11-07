@@ -1,0 +1,1 @@
+This homework was so much fun to create I basically updated my portfolio from prework! The thing I especially added and needed a lot of help with was the little sparkles floating on screen! I had to have my sister in law to help me with this! She's very talented!
